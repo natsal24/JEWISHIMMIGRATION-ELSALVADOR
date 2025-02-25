@@ -1,7 +1,6 @@
 .ve-header "Jewish Immigration to El Salvador" background=#124559
 
 ---
-
 In this interview, Claudia Portillo discusses the complex relationship between her grandmother Rosa Emma Durán and her great-grandfather Roberto Wolff. Claudia primarily spotlights the life and immediate family of Roberto Wolff in her story telling. 
 
 Roberto was the Salvadoran-born child of French-Jewish immigrants. According to Claudia, his family immigrated to Latin America in the mid to late 19th century like many other European families at that time. Between 1820 and 1932, Latin America witnessed a mass wave of immigration from Europe. [^1] For instance, Argentina received more than 6 million immigrants, mostly from Italy and Spain. [^2] However, what about immigration to El Salvador? What other families joined the Wolffs in the Americas? And were there other Jewish families in the community where the Wolff's lived? 
@@ -15,6 +14,10 @@ In El Salvador it is believed that the first Jewish immigrant to arrive was a Fr
 Once World War II broke out, El Salvador was among the first countries to support the United States' involvement. The newspaper El Mundo Libre acknowledged the American press and stated that they would print “as long as the war raged on in Europe.” [^9]
 
 El Salvador also assisted in helping and receiving Jewish refugees. Colonel Jose Arturo Castellanos, El Salvador's Consul-General, and his First Secretary of the Consulate, George Mantello, saved between 30,000 and 50,000 Jews. Mantello was a Hungrarian-Jewish refugee who had fled to Switzerland in 1941.  [^10] Castellanos appointed Mantello to a made-up position which granted him a diplomatic passport. [^11] Mantello decided to assist the Jews who had fled Auschwitz after hearing about their need for safety while on business trips in Europe. He proposed to Castellanos that these Jews in be granted Salvadoran citizenship certificates. [^12] They arranged for blank certificates to be taken to consulates of various countries in Geneva. 
+
+.ve-media default:https://upload.wikimedia.org/wikipedia/commons/thumb/8/8a/El_Salvador_nationality_documents_to_Jews.png/640px-El_Salvador_nationality_documents_to_Jews.png left height=400px width=400px caption="El Salvador nationality documents to Jews"
+
+.ve-media default:https://upload.wikimedia.org/wikipedia/commons/thumb/d/d8/George_Mantello.jpg/640px-George_Mantello.jpg left height=400px width=400px caption="George Mantello"
 
 
 In actuality El Salvador hadn’t granted Castellanos or Montello permission to issue these certificates nor had the Swiss government. Later in 1944, El Salvador’s government reached out to the Swiss government to request full protection and representation for the Salvadoran citizens in Hungary.” [^13] Although it wasn't an easy task, thousands of Jews were saved thanks to Montello and Castellano’s perseverance and desire to help.
