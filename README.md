@@ -8,7 +8,7 @@ In this interview, Claudia Portillo discusses the complex relationship between h
 
 Roberto was the Salvadoran-born child of French-Jewish immigrants. According to Claudia, his family immigrated to Latin America in the mid to late 19th century like many other European families at that time. Between 1820 and 1932, Latin America witnessed a mass wave of immigration from Europe. [^1] For instance, Argentina received more than 6 million immigrants, mostly from Italy and Spain. [^2] However, what about immigration to El Salvador? What other families joined the Wolffs in the Americas? And were there other Jewish families in the community where the Wolff's lived? 
 
-.ve-media default:https://upload.wikimedia.org/wikipedia/commons/thumb/5/5f/Immigrants_ba_1914.jpg/640px-Immigrants_ba_1914.jpg left height=530px width=350px caption="Dorothy Dip in traditional clothing"
+.ve-media default:https://upload.wikimedia.org/wikipedia/commons/thumb/9/9d/Francesafamiliasv.png/640px-Francesafamiliasv.png right height=280px width=490px caption="French Family in El Salvador, between 1910-1915"
 
 Jewish people have lived in Latin America since the arrival of Christopher Columbus in the fifteenth century. [^3] Due to religious persecution in Spain and Portugal many Jews became “conversos” which were people who converted from Judaism to Catholicism. [^4] Some willingly converted while others did so for survival. Those who feigned their conversion were also known as “crypto-Jews.” [^5] The first Jewish person to arrive in the Americas is believed to have been Rodrigo de Orgonos, a new Christian, who in 1535 arrived to the continent with Spanish conquistador Diego de Almagro. [^6]
 
