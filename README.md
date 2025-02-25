@@ -1,5 +1,3 @@
-# JEWISHIMMIGRATION-ELSALVADOR
-
 .ve-header "Jewish Immigration to El Salvador" background=#124559
 
 ---
