@@ -8,7 +8,7 @@ In this interview, Claudia Portillo discusses the complex relationship between h
 
 Roberto was the Salvadoran-born child of French-Jewish immigrants. According to Claudia, his family immigrated to Latin America in the mid to late 19th century like many other European families at that time. Between 1820 and 1932, Latin America witnessed a mass wave of immigration from Europe. [^1] For instance, Argentina received more than 6 million immigrants, mostly from Italy and Spain. [^2] However, what about immigration to El Salvador? What other families joined the Wolffs in the Americas? And were there other Jewish families in the community where the Wolff's lived? 
 
-.ve-media default:https://upload.wikimedia.org/wikipedia/commons/thumb/9/9d/Francesafamiliasv.png/640px-Francesafamiliasv.png right height=280px width=490px caption="French Family in El Salvador, between 1910-1915"
+.ve-media default:https://upload.wikimedia.org/wikipedia/commons/thumb/9/9d/Francesafamiliasv.png/640px-Francesafamiliasv.png right height=300px width=445px caption="French Family in El Salvador, between 1910-1915"
 
 Jewish people have lived in Latin America since the arrival of Christopher Columbus in the fifteenth century. [^3] Due to religious persecution in Spain and Portugal many Jews became “conversos” which were people who converted from Judaism to Catholicism. [^4] Some willingly converted while others did so for survival. Those who feigned their conversion were also known as “crypto-Jews.” [^5] The first Jewish person to arrive in the Americas is believed to have been Rodrigo de Orgonos, a new Christian, who in 1535 arrived to the continent with Spanish conquistador Diego de Almagro. [^6]
 
@@ -35,7 +35,7 @@ Today, the majority of Jews reside in San Salvador's capital. Despite their smal
 [^5]: Morales, Francesc, and Aliya Miranda. “The History of the Jewish Community in El Salvador .” Samuel Proctor Oral History Program, oral.history.ufl.edu/ldap-the-history-of-jewish-communities-in-el-salvador/.
 [^6]: Ibid. 
 [^7]: Ibid. 
-[^8]: World Jewish Congress. “Community in El Salvador.” World Jewish Congress, www.worldjewishcongress.org/en/about/communities/SV. Accessed 24 Feb. 2025. 
+[^8]: World Jewish Congress. “Community in El Salvador.” World Jewish Congress, www.worldjewishcongress.org/en/about/communities/SV. 
 [^9]: Walker, Malea. “Good Neighbors: Stories from Latin America in World War II.” Library of Congress Blogs , 28 Aug. 2018, https://blogs.loc.gov/headlinesandheroes/2018/08/good-neighbors-stories-from-latin-america-in-world-war-ii/. 
 [^10]: Burns, Margie. “El Salvador, a Rescuing Country.” The International Raoul Wallenberg Foundation, www.raoulwallenberg.net/saviors/others/el-salvador-rescuing-country/. 
 [^11]: Gold, Hadas. “El Salvador’s Role of Aiding Jews in WW II Finally Told.” CHRON, 22 June 2008, www.chron.com/life/houston-belief/article/El-Salvador-s-role-of-aiding-Jews-in-WW-II-1631121.php. 
