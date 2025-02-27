@@ -1,6 +1,6 @@
 .ve-header "Jewish Immigration to El Salvador" background=#124559
 
-In this [interview](https://raicesculturalcenter.org/oral-history/claudia-portillo-2022/), Claudia Portillo discusses the complex relationship between her grandmother Rosa Emma Durán and her great-grandfather Roberto Wolff. Claudia primarily spotlights the life and immediate family of Roberto Wolff in her story telling. 
+In this [**interview**](https://raicesculturalcenter.org/oral-history/claudia-portillo-2022/), Claudia Portillo discusses the complex relationship between her grandmother Rosa Emma Durán and her great-grandfather Roberto Wolff. Claudia primarily spotlights the life and immediate family of Roberto Wolff in her story telling. 
 
 Roberto was the Salvadoran-born child of French-Jewish immigrants. According to Claudia, his family immigrated to Latin America in the mid to late 19th century like many other European families at that time. Between 1820 and 1932, Latin America witnessed a mass wave of immigration from Europe. [^1] For instance, Argentina received more than 6 million immigrants, mostly from Italy and Spain. [^2] However, what about immigration to El Salvador? What other families joined the Wolffs in the Americas? And were there other Jewish families in the community where the Wolff's lived? 
 
