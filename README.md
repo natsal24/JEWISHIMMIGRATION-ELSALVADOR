@@ -10,7 +10,7 @@ Jewish people have lived in Latin America since the arrival of Christopher Colum
 
 In El Salvador it is believed that the first Jewish immigrant to arrive was a Frenchman named Bernardo Haas in 1868. The majority of Jewish immigrants from this time period hailed from France and Central Europe. [^7] Prior to the arrival of ==Sephardic Jews=={Q102251} from France in Chalchuapa there was no permanent Jewish settlement in the country. [^8] 
 
-Once World War II broke out, El Salvador was among the first countries to support the United States' involvement. The newspaper El Mundo Libre acknowledged the American press and stated that they would print “as long as the war raged on in Europe.” [^9]
+Once World War II broke out, El Salvador was among the first countries to support the United States' involvement. The newspaper *El Mundo Libre* acknowledged the American press and stated that they would print “as long as the war raged on in Europe.” [^9]
 
 El Salvador also assisted in helping and receiving Jewish refugees. ==Colonel Jose Arturo Castellanos=={Q325240}, El Salvador's Consul-General, and his First Secretary of the Consulate, ==George Mantello=={Q829266}, saved between 30,000 and 50,000 Jews. Mantello was a Hungrarian-Jewish refugee who had fled to Switzerland in 1941.  [^10] Castellanos appointed Mantello to a made-up position which granted him a diplomatic passport. [^11] Mantello decided to assist the Jews who had fled Auschwitz after hearing about their need for safety while on business trips in Europe. He proposed to Castellanos that these Jews be granted Salvadoran citizenship certificates. [^12] They arranged for blank certificates to be taken to consulates of various countries in Geneva. 
 
