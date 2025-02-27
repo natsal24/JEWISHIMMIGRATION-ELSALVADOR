@@ -20,7 +20,7 @@ El Salvador also assisted in helping and receiving Jewish refugees. ==Colonel Jo
 .ve-media default:https://upload.wikimedia.org/wikipedia/commons/thumb/d/d8/George_Mantello.jpg/640px-George_Mantello.jpg left height=400px width=400px caption="George Mantello"
 
 
-In actuality El Salvador hadn’t granted Castellanos or Montello permission to issue these certificates nor had the Swiss government. Later in 1944, El Salvador’s government reached out to the Swiss government to request full protection and representation for the Salvadoran citizens in Hungary.” [^13] Although it wasn't an easy task, thousands of Jews were saved thanks to Montello and Castellano’s perseverance and desire to help.
+In actuality El Salvador hadn’t granted Castellanos or Montello permission to issue these certificates nor had the Swiss government. Later in 1944, El Salvador’s government reached out to the Swiss government "to request full protection and representation for the Salvadoran citizens in Hungary.” [^13] Although it wasn't an easy task, thousands of Jews were saved thanks to Montello and Castellano’s perseverance and desire to help.
 
 The World Jewish Congress estimates that there are currently only 100 Jews living in El Salvador. The Jewish community in El Salvador started to establish itself after the war, but sadly, a few years later, it found itself in the midst of the ==Salvadoran Civil War=={Q1783607}. Due to kidnappings and the terror surrounding the murder of Ernesto Liebes, the honorary Israeli Consul and leader of the Jewish community, many were forced to flee the country. 
 
