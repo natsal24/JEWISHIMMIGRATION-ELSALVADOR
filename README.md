@@ -23,7 +23,7 @@ In actuality El Salvador hadn’t granted Castellanos or Montello permission to 
 
 The World Jewish Congress estimates that there are currently only 100 Jews living in El Salvador. The Jewish community in El Salvador started to establish itself after the war, but sadly, a few years later, it found itself in the midst of the ==Salvadoran Civil War=={Q1783607}. Due to kidnappings and the terror surrounding the murder of Ernesto Liebes, the honorary Israeli Consul and leader of the Jewish community, many were forced to flee the country. 
 
-Today, the majority of Jews reside in San Salvador's capital. Despite their small size, the community is close-knit and makes a concerted effort to maintain their customs through a community center, synagogue services, and Jewish education for the youth. [^14] 
+Today, the majority of Jews reside in El Salvador's capital San Salvador. Despite their small size, the community is close-knit and makes a concerted effort to maintain their customs through a community center, synagogue services, and Jewish education for the youth. [^14] 
 
 
 
